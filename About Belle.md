@@ -13,4 +13,4 @@ I specialize in transforming raw data into clean dashboards and strategic insigh
 ---
 
 📄 [View Resume](https://docs.google.com/document/d/1tG4mOtZknWxhw4Ng0eEGlyx0em1s2L1G-zyTbQ7a150/edit?usp=sharing)  
-🔗 [Connect on LinkedIn](www.linkedin.com/in/belle-e-george)
+🔗 [Connect on LinkedIn](https://www.linkedin.com/in/belle-e-george/))
